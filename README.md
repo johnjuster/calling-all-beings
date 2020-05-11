@@ -1,0 +1,2 @@
+# calling-all-beings
+So many names to go by, to use and subsequently be used with. Named by nationality, by ethnicity, by race &amp; color &amp; language, &amp; sexual orientation. Even by size. Well, how about we align with one name we all have which also stands above all other names given &amp; taken? We are human beings, and we know going by the name human doesn't unite us with all other life forms, all other...beings. So there you go. We are beings, it's a noun and not only a verb, and it stands above all other names we use &amp; are used by. Seriously.
